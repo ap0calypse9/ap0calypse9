@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **logantrek@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GYrdhA-DPnJDSfk9GpmbophwO8TvtPZY/view?usp=drive_link](https://drive.google.com/file/d/1GYrdhA-DPnJDSfk9GpmbophwO8TvtPZY/view?usp=drive_link)
+- 📄 RESUME [https://drive.google.com/file/d/1GYrdhA-DPnJDSfk9GpmbophwO8TvtPZY/view?usp=drive_link](https://drive.google.com/file/d/1GYrdhA-DPnJDSfk9GpmbophwO8TvtPZY/view?usp=drive_link)
 
 - ⚡ Fun fact **I suck at coding**
 
